@@ -9,8 +9,8 @@ En Fénix Art, creemos en la importancia de preservar el legado de las antiguas 
 
 En nuestra página web, podrás explorar el proceso de creación de cada NFT, desde el boceto inicial hasta el resultado final. Aprenderás sobre los mitos y leyendas que inspiraron estas criaturas mitológicas y cómo cada una de ellas representa diferentes aspectos de la naturaleza y el poder.
 
-Además, te presentaremos una selección de los algoritmos más top y llamativos en la red del arte digital. Desde algoritmos de generación de imágenes hasta algoritmos de recomendación de contenido, descubrirás cómo estas técnicas avanzadas están transformando la forma en que interactuamos y consumimos arte digital.
+Con una interfaz intuitiva y atractiva, te sumergirás en un mundo visualmente impresionante y podrás explorar nuestra colección de NFTs con facilidad.
 
-Nuestra página web está diseñada con un enfoque moderno y adaptada a los algoritmos número uno en ventas y seguidores. Con una interfaz intuitiva y atractiva, te sumergirás en un mundo visualmente impresionante y podrás explorar nuestra colección de NFTs con facilidad.
-Cree una entrada con esto
-Únete a nosotros en Fénix Art y adéntrate en el fascinante mundo de los NFTs. Descubre el arte digital en su máxima expresión y sé parte de esta rev
+Únete a nosotros en Fénix Art y adéntrate en el fascinante mundo de los NFTs. Descubre el arte digital en su máxima expresión y sé parte de esta historia 
+
+
